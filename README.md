@@ -1,1 +1,1 @@
-# Akselerator )))))))))
+# Akselerator
